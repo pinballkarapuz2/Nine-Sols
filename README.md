@@ -241,4 +241,4 @@ Nine Sols is available as a full free version, including all features and update
 Ready to embark on an extraordinary adventure? **Download Nine Sols free today and dive into the captivating world of this metroidvania masterpiece!**
 
 ---
-**Last updated:** 2026-10-06 05:05:48 UTC
+**Last updated:** 2026-10-06 12:49:50 UTC
